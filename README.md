@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @A-guy-using-ChatGPT
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning nothing because i use chatgpt
+- 💞️ I’m looking to collaborate on nothing at the moment because i use chatgpt
+- 📫 How to reach me [no-email]
